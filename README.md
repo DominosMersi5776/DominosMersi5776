@@ -1,1 +1,1 @@
-я домино приятно познакомится
+Zingeer Vincere Organisation 🔥🔥🔥
